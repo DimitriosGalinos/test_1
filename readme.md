@@ -4,8 +4,6 @@
 
 # noooooooo
 
-#yes
-
 # lelelele
 
 # I did somethign bad
